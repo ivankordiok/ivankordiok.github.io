@@ -1,1 +1,0 @@
-# ivankordiok.github.io
